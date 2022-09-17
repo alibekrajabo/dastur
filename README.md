@@ -1,0 +1,2 @@
+# dastur
+yangi loyiha
